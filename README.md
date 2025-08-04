@@ -1,6 +1,7 @@
 👌Sendziak on discord
 
 ⭐ 16
+
 🇵🇱 GMT+1 (PL)
 
 📝 2 Years Experience Programmer
